@@ -1,6 +1,7 @@
 HOLAAAAAA
 
-Soy Manuel 
+Soy Manuel
+
 Principalmente soy Logopeda en atención temprana,
 
 pero como profesional de la comunicación,
